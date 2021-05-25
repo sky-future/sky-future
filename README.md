@@ -9,8 +9,9 @@ Experience:
   - built some projects and did a developer intership at Umons
   - Made an E-commerce website selling HoverKarts and HoverBoards.
   - Blogger sins 2012 : https://sky-future.net
-Me: Motivated, High-Tech lover, 
 
+Me: Motivated, 
+Interested in: Blockchain, 3D printing, Home automation, New-Technologies...
 Speak: English, Dutch and French
 
 📫 Feel free to reach out to me:
