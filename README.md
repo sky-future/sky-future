@@ -3,15 +3,20 @@
 🔎 Seeking a role:
 
 As: software/web developer/Android developer | Angular, Java, Spring, JavaEE ...
+
 In: Belgium/Abroad if opportunity with my job.
+
 Education: Bachelor's Degree in Computer Science.
+
 Experience: 
   - built some projects and did a developer intership at Umons
   - Made an E-commerce website selling HoverKarts and HoverBoards.
   - Blogger sins 2012 : https://sky-future.net
 
 Me: Motivated, 
+
 Interested in: Blockchain, 3D printing, Home automation, New-Technologies...
+
 Speak: English, Dutch and French
 
 📫 Feel free to reach out to me:
